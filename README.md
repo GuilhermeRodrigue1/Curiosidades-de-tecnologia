@@ -1,2 +1,2 @@
-# Curiosidades-de-tecnologia
+# https://guilhermerodrigue1.github.io/Curiosidades-de-tecnologia/
  
